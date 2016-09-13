@@ -2,6 +2,7 @@
 
 2003년 4월 29일에 서비스를 시작하여 올해로 벌써 13주년을 맞은 한국형 MMORPG 게임이다. 13년동안 메이플스토리의 변천사에 대해서 직업 추가를 기준으로 간단하게 알아보겠습니다.
 
+<img src="https://i.ytimg.com/vi/4jrTXOnFlss/maxresdefault.jpg" height="300" width="500"/>
 
 - 2003년 서비스 시작
 
